@@ -6,3 +6,4 @@ I've heard Free Palenstine all my life. Sadly this is nothing new.
 Futurama is now a better predictor than the Simpsons.
 .hack/Sign is severly underrated and turned my extensential crisis all the way up as a kid and it's never come down.
 #StopAllHate -___-
+this is bullshit
